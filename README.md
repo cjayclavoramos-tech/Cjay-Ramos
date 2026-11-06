@@ -1,2 +1,0 @@
-# Cjay-Ramos
-Website/Portfolio
